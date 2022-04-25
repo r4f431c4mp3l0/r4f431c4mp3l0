@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @r4f431c4mp3l0 My name is Rafael. 
-- 👀 I’m interested in: Art, design, gamers, interface development, programming, web design, application development.
+- 👀 I’m interested in: Art, design, games, interface development, programming, web design, application development.
 - 🌱 I’m currently learning: UX/UI design applied to mobile devices developing graphical interfaces, dashboards in business intelligence.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me +55 (11) 94991-8585 - rafaellcampelo@gmail.com - 🖊️ https://r4f4h3ll.myportfolio.com - https://www.behance.net/rafaellcampelo
